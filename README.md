@@ -1,4 +1,3 @@
-# Leah Sheila Wanjiku
 
 **Corporate Finance | Investment Analysis | Financial Modelling | Portfolio & Performance Reporting**
 
